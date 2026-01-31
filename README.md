@@ -4,7 +4,7 @@
 Zubair - SMK
 Fahad  - SMK
 Hanif  - SMK
-Amru   - SMK
+Amru   - SMKaqwer
 Jiyaad - SMK
 Fikri  - SMK
 Furqon - SMK
